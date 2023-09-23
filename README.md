@@ -1,1 +1,5 @@
-# .githubLab
+- M2S™️ ConglomeratGroupInc. JamalM2S®️ PiddingAI®️ AIzoo®️
+- 👀 What about Eskimo? 
+- We love learn about your 🌏 and any assistance is welcome 🫡
+- We try develop rockets and space stations 🚀 🛰️
+-Contact us for giving us advice, gift or any goods ☎️🎁🕹️
